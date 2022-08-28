@@ -1,0 +1,2 @@
+# my-website
+ALL DETAILS ABOUT MY COLLEGE
